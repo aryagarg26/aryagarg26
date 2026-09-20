@@ -85,4 +85,4 @@ If you have an opportunity or would like to connect, feel free to reach out!
 
 ---
 
-⭐ Thanks for visiting my profile!
+⭐ Thanks for visiting my profile
